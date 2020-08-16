@@ -1,15 +1,15 @@
 # hello-world
 Help people thrive in more balanced and healthy ways while respecting the life around us.
 
-火 Passion - Enjoying delivering excellence :fire:
+:fire: 火 Passion - Enjoying delivering excellence 
 
-風 Environment - Develop all sides of intelligence :tornado:
+:tornado: 風 Environment - Develop all sides of intelligence :tornado:
 
-水 Flow - Keep moving -- reflect often :ocean:
+:ocean: 水 Flow - Keep moving -- reflect often :ocean:
 
-気 Spirit - Find our own center in the process of helping others :yin_yang:
+:yin_yang: 気 Spirit - Find our own center in the process of helping others :yin_yang:
 
-土 Foundation - Improve everything we touch :mountain:
+:mountain: 土 Foundation - Improve everything we touch :mountain:
 
 When averaging out humanity there is more good than bad.  Our mission focuses on helping find their own healthy paths in the spirit of our name Jidoist 「自道」.
 
