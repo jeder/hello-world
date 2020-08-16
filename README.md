@@ -1,7 +1,7 @@
 # hello-world
 Help people thrive in more balanced and healthy ways while respecting the life around us.
 
-火 Passion - Enjoying delivering excellence
+火 Passion - Enjoying delivering excellence :fire:
 
 風 Environment - Develop all sides of intelligence
 
