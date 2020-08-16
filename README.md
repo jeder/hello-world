@@ -13,4 +13,4 @@ Help people thrive in more balanced and healthy ways while respecting the life a
 
 When averaging out humanity there is more good than bad.  Our mission focuses on helping find their own healthy paths in the spirit of our name Jidoist 「自道」.
 
-#⌽
+# ⌽
