@@ -3,13 +3,13 @@ Help people thrive in more balanced and healthy ways while respecting the life a
 
 火 Passion - Enjoying delivering excellence :fire:
 
-風 Environment - Develop all sides of intelligence
+風 Environment - Develop all sides of intelligence :tornado:
 
-水 Flow - Keep moving -- reflect often
+水 Flow - Keep moving -- reflect often :ocean:
 
-気 Spirit - Find our own center in the process of helping others
+気 Spirit - Find our own center in the process of helping others :yin_yang:
 
-土 Foundation - Improve everything we touch
+土 Foundation - Improve everything we touch :mountain:
 
 When averaging out humanity there is more good than bad.  Our mission focuses on helping find their own healthy paths in the spirit of our name Jidoist 「自道」.
 
